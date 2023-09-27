@@ -1,10 +1,18 @@
-- 👋 oii, eu sou @bruno10092008
-- 👀 estou interessado no luffy com o haki do rei ...
-- 🌱atualmente estou aprendendo coisas novas de one piece ...
-- 💞️ estou proucurando colaborar ...
-- 📫 How to reach me ...
+- 👋 oii, eu sou @monkey d. luffy.
+- 👀 estou interessado em aprender o haki do rei ...
+- 🌱atualmente estou aprendendo a desepertar a hito hito no mi...
+- 💞️ estou proucurando colaborar com ussop...
+- 📫 como chegar ate mim:l.bruno10@escola.pr.gov.br
 
-<!---
-bruno10092008/bruno10092008 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+
+
+
+
+
+
+
+
+
+
+- 
+![](https://media.tenor.com/gJGXNVLiLLkAAAAd/gear-5-gear-5-luffy.gif)
